@@ -1,4 +1,4 @@
 # Chaflingo-Client
 Este proyecto contendra 
-tres travestis en tanga y un poncho
+tres travestis en tanga y un poncho blanquito
 
